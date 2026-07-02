@@ -1,6 +1,6 @@
 # Hi everyone, I'm Lã Minh Khánh, and you can call me Trà Sữa Dâu (strawberrymilktea0604)
 
-![Preview](https://github.com/strawberrymilktea0604/LaMinhKhanh/blob/main/background.jpg?raw=true)
+![Preview](https://github.com/strawberrymilktea0604/strawberrymilktea0604/blob/main/background.jpg?raw=true)
 
 ## 📫 Connect with me
 
